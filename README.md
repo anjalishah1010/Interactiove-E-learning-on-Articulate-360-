@@ -1,2 +1,3 @@
 # Interactiove-E-learning-on-Articulate-360-
-[![Watch the video]([https://i.imgur.com/vKb2F1B.png](https://github.com/anjalishah1010/Interactiove-E-learning-on-Articulate-360-/blob/main/2022-05-29-17-25-58.mp4))]([https://youtu.be/vt5fpE0bzSY](https://github.com/anjalishah1010/Interactiove-E-learning-on-Articulate-360-/blob/main/2022-05-29-17-25-58.mp4))
+https://user-images.githubusercontent.com/99791667/170948204-9e07e6d5-0507-4bde-8e18-34b412fd18e0.mp4
+
